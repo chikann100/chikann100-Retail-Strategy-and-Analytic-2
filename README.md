@@ -1,1 +1,1 @@
-# chikann100-Retail-Strategy-and-Analytic-2
+# Retail-Strategy-and-Analytic-2
